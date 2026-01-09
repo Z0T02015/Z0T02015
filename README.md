@@ -1,4 +1,4 @@
-# ¡Hola! 👋 Soy Z0T02015
+# ¡Hola! 👋 Soy CRisthian Soto
 
 ## 👨‍💻 Estudiante de Diseño y Desarrollo de Software
 
