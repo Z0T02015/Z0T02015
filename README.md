@@ -1,4 +1,4 @@
-# ¡Hola! 👋 Soy CRisthian Soto
+# ¡Hola! 👋 Soy Cristhian Soto
 
 ## 👨‍💻 Estudiante de Diseño y Desarrollo de Software
 
